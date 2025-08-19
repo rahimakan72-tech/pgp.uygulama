@@ -1,0 +1,1 @@
+Kısa bir kod çalışması oldu. şimdiden katkısı olabilecek herkese teşekkür ediyorum. uygulamayı açmada zorlanıyorum sorun var daha nasıl güvenlikli hale getirebilinir yardımcı olabilirseniz çok iyi olur. şimdiden allah razı olsun.  
